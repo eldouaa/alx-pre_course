@@ -1,1 +1,1 @@
-My first project
+Do hard thinks
